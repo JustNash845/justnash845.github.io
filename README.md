@@ -1,2 +1,4 @@
 # justnash845.github.io
-idk man lemme do this
+idk how this works but hi
+i think this might be working idk
+yeah
